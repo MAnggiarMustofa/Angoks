@@ -1,5 +1,14 @@
 ### Hi there 👋
 
+- 🔭 I’m currently working on YouTube content creator
+- 🌱 I’m currently learning Progamming Language
+- 👯 I’m looking to collaborate on Artist
+- 🤔 I’m looking for help with mods
+- 💬 Ask me about my identity?
+- 📫 How to reach me: gimme Money!
+- 😄 Pronouns: ...
+- ⚡ Fun fact: people call me as Angoks on past even until now
+
 <!--
 **Angoks/Angoks** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
