@@ -1,7 +1,7 @@
-Hello, I am M Anggiar Mustofa (Impact Teyvat) \
+Hello everyone, I am M Anggiar Mustofa (Impact Teyvat or TheNgoks61) \
 I am a Content Creator on YouTube 💻
 I’m currently still a High School student now
-If you want to contact me, just dm me on Discord (@Hale#5105) or Twitter ([@ImpactTeyvat](https://www.instagram.com/ImpactTeyvat/))
+If you want to contact me, just dm me on Discord (@Hale#5105) or Instagram ([@ImpactTeyvat](https://www.instagram.com/ImpactTeyvat/))
 
 My [YouTube](https://wwwyoutube.com/channel/UC19KZfU5hO0siK6y_zfJJSA)
 
